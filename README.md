@@ -1,1 +1,1 @@
-"From Board Delivery" (Laptop (SM 758).
+Официальная страница сайта "From Board Delivery" (Laptop (SM 758).
